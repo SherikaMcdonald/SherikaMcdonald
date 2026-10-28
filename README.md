@@ -54,7 +54,7 @@ I am a computer science graduate and current Information Security and Assurance 
 Strayer University | Expected 09/2027
 
 **Bachelor of Science in Computer Science**  
-University of Phoenix | 12/2024
+The University of Chicago | 12/2024
 
 ## Contact
 Email: cielagrove@outlook.com
